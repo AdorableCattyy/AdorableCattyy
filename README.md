@@ -1,13 +1,13 @@
 Hi ! Call me Catty // Ivy ! 🍀
-_ •
+- 
 I don't mind any pronouns you use on me but I mainly use She // They // It !
-_ °
+- °
 Do not copy my PonyTown skins unless they're a cosplay of my ocs or I gave you permission to copy them !
-_ •
+- •
 Very energetic response ! Especially to friends <3
-_ °
+- °
 I never hid / block anyone freely ! If I feel like you're annoying me and I'm in a bad mood, I might hid you for 7 days !
-_ •
+- •
 You can usually find me in : FTS, Fashion Roulette, Minigames, Lab RPs, KG/Dangan RPs, School RPs
 
 🌿 | 🌳

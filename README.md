@@ -56,4 +56,4 @@ You can usually find me in : FTS, Fashion Roulette, Minigames, Lab RPs, KG/Danga
 
 ° Mostly a fanon shipper !
 
-🌱 | 🌼
+🌱 | 🌼 

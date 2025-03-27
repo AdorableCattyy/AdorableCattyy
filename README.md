@@ -1,6 +1,5 @@
-Hello ! 🌿
+Hi ! Call me Catty / Ivy ! 🍀 . 
 
-Please call me Catty or Ivy!
-_
-I don't know how to use Github pls someone explain it to me aaaa
- .
+Some things about me I guess ! ::
+
+I have social anxiety, and even online, still uncomfortable with strangers .. So I mainly have my status to DNIUF or DNIUCF

@@ -16,6 +16,8 @@ You can usually find me in : FTS, Fashion Roulette, Minigames, Lab RPs, KG/Danga
 
 • I have social anxiety, and even online, I am still uncomfortable with strangers, that's why I mostly set my status to DNIUF or DNIUCF.
 
+• I tend to talk a lot ! Especially about my insterests <3
+
 • English is not my first language and I'm not exactly good at it, so please correct me if I made mistakes !
 
 • I sometimes have Crowd / Cover discomfort ! So don't cover me if you're not my friend !
@@ -55,5 +57,33 @@ You can usually find me in : FTS, Fashion Roulette, Minigames, Lab RPs, KG/Danga
 ° I'm a multifandom and a multishipper person ! I have a lot of fandoms and ships lol..
 
 ° Mostly a fanon shipper !
+
+° I love roleplaying ! I wouldn't call myself good at it but I still roleplay for fun !
+
+🌻 | 🌾
+
+☆ ⁠˖ My favorite characters as in right now ! (I'll add more!)::
+
+. June (Sundy Stairway)
+. Melanie (Sundy Stairway)
+. Chihiro Fujisaki (Danganronpa)
+. Kyoko Kirigiri (Danganronpa)
+. Mahiru Koizumi (Danganronpa)
+. Sonia Nevermind (Danganronpa)
+. Alan (WonderEnd)
+. Moka (WonderEnd)
+. NULL (WonderEnd)
+. Shiro (WonderEnd)
+. Kana Arima (Oshi No Ko)
+. Ai Hoshino (Oshi No Ko)
+. Bubble (FPE)
+. Aubrey (OMORI)
+. Mari (OMORI)
+. Mincy (OMORI)
+. Nil (Her Tears Were My Light)
+. Crafty Corn (Poppy Playtime)
+. Neko Nekoyamada (My Deer Friend, Nokotan)
+. Chiharu Tsubameya (My Deer Friend, Nokotan)
+. Kinu Tanukikoji (My Deer Friend, Nokotan)
 
 🌱 | 🌼 

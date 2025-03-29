@@ -42,6 +42,8 @@ You can usually find me in : FTS, Fashion Roulette, Minigames, Lab RPs, KG/Danga
 
 🍃 | 🌲
 
+![image alt](https://github.com/AdorableCattyy/AdorableCattyy/blob/67ab304c67790fd46e63c85cfd04258b7863de9a/VID-20250329-WA0001.mp4)
+
 ☆ ⁠˖ Silly things about me ! ::
 
 ° I like to draw ! I am mostly a lazy artist but I draw for fun !

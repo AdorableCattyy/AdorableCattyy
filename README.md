@@ -10,6 +10,8 @@ I never hid / block anyone freely ! If I feel like you're annoying me and I'm in
 - •
 You can usually find me in : FTS, Fashion Roulette, Minigames, Lab RPs, KG/Dangan RPs, School RPs
 
+![image alt](https://github.com/AdorableCattyy/AdorableCattyy/blob/7c60e314b0e92b94cbb4c161479c0a3a1d34d88b/IMG-20250329-WA0000.jpg)
+
 🌿 | 🌳
 
 ☆ ⁠˖ Some things about me I guess ! ::
